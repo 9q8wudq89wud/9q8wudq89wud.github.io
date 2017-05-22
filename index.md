@@ -1,1 +1,0 @@
-#Earthly Vanity Divine Salvation
